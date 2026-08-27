@@ -1,4 +1,5 @@
 <img width="512" height="512" alt="baby-boi-x-nelson-dsa-official-logo" src="https://github.com/user-attachments/assets/4d8cd866-971f-4c4c-8748-6d5d5dfe9668" />
+
 # ⚡ Welcome to the Matrix of Baby Boi X
 
 I am **Nelson Anthony Dsa**—primarily known across the web as **Baby**, **Baby Boi**, or **Baby Boi X** (also recognized as Roxx RTR, Roxx R, and Roxx RTX). 
